@@ -19,4 +19,7 @@ Here are some ideas to get you started:
 
 ![изображение](https://user-images.githubusercontent.com/107340025/211830534-f7e81c0c-b5de-4268-8336-82b700ef12a4.png)
 
+![изображение](https://user-images.githubusercontent.com/107340025/212449108-8f84ff69-7f5b-4c1d-8427-ea4d601800fe.png)
+
+
 
